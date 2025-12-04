@@ -265,6 +265,3 @@ Agnotology: The study of ignorance. You don't KNOW if you should lick it. That's
 Escapology: You can't lick your way out of handcuffs. People have tried.
 
 
-
-I think we have enough sciences in this by now.
-
